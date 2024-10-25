@@ -1,4 +1,4 @@
-# Tải NHV BOOT 2024 v1600 EXTREME Link Google 
+# Tải NHV BOOT 2024 v1600 EXTREME Link Google drive
 NHV BOOT 2024 là bộ công cụ cứu hộ máy tính với thiết kế hiện đại, tốc độ boot cực nhanh, tương thích từ máy tính cũ đến máy tính mới nhất. NHV BOOT 2024 mang đến nhiều tính năng cao cấp cho mọi người để có thể xử lý sự cố máy tính, đặc biệt phù hợp cho Kỹ Thuật IT. NHV BOOT mọi chi tiết đều được tác giả chăm chút kỹ lưỡng tỉ mỉ với giao diện trực quan hướng đến mọi đối tượng người dùng.
 
 Bộ công cụ cứu hộ này được tác giả phát triển từ đầu năm 2020 và chính thức phát hành vào tháng 03/2021 bởi tác giả Nguyễn Hoàng Vương. Trải qua các phiên bản cập nhật NHV BOOT đã hoàn thiện về mặt giao diện và tính năng NHV BOOT 2024 với thiết kế hiện đại, nhanh, mạnh, đẹp và nhiều tính năng hữu ích cho mọi người để có thể xử lý sự cố máy tính, đặc biệt phù hợp cho anh em làm Kỹ Thuật – IT.
